@@ -4,7 +4,7 @@
 
 #DAY-1
 
-_The Beginning Of New Phase Of Life_
+<mark>_The Beginning Of New Phase Of Life_</mark>
 
 
 
@@ -14,7 +14,7 @@ _The Beginning Of New Phase Of Life_
 
 
 
-##started our journey by seeking divine blessings of _SHRI GURU GRANTH SAHIB JI_
+__started our journey by seeking divine blessings of__ <mark>_SHRI GURU GRANTH SAHIB JI_</mark>
 
 
 

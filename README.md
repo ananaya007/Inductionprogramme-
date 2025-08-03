@@ -25,6 +25,12 @@ As I entered the gurudwara sahib , I suddenly realised that my new journey has b
 __As fishermen need boat ⛵ to reach their destination , thisGurudwara is not less than a<mark>**ship**</mark> that will take me to my destination_
 as the shape of the gurudwara sahib is similar to a ship 
 
-Starting from kirtan,from reciting  JAPJI SAHIB to JUPAI SAHIB I got soo immersed in the devotion of Guru Sahib that I Didn't realised that I am in the Jahaz of Waheguru and had travelled in the ship for one hour 
+Starting from kirtan,from reciting  JAPJI SAHIB to CHUPAI SAHIB I got soo immersed in the devotion of Guru Sahib that I Didn't realised that I am in the Jahaz of Waheguru and had travelled in the ship for one hour 
+
+
+
+
+![Picsart_25-08-03_19-46-08-480](https://github.com/user-attachments/assets/16f9351b-2dfd-4929-a490-01cadcb62120)
+
 
 

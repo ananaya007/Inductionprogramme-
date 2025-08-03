@@ -17,6 +17,14 @@
 __started our journey by seeking divine blessings of__ <mark>_SHRI GURU GRANTH SAHIB JI_</mark>
 
 
-
 ![IMG_20250803_121446](https://github.com/user-attachments/assets/cfd8608c-73f7-48c5-908c-93d5e9907805)
+
+
+As I entered the gurudwara sahib , I suddenly realised that my new journey has begun .
+
+__As fishermen need boat ⛵ to reach their destination , thisGurudwara is not less than a<mark>**ship**</mark> that will take me to my destination_
+as the shape of the gurudwara sahib is similar to a ship 
+
+Starting from kirtan,from reciting  JAPJI SAHIB to JUPAI SAHIB I got soo immersed in the devotion of Guru Sahib that I Didn't realised that I am in the Jahaz of Waheguru and had travelled in the ship for one hour 
+
 

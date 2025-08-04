@@ -33,4 +33,11 @@ Starting from kirtan,from reciting  JAPJI SAHIB to CHUPAI SAHIB I got soo immers
 ![Picsart_25-08-03_19-46-08-480](https://github.com/user-attachments/assets/16f9351b-2dfd-4929-a490-01cadcb62120)
 
 
+after this devotional tip I along with my friends and batchmates reache in auditorium ( a place full of positivity)
+
+__The atmosphere was calm, and the stage was beautifully decorated .Then our host introduced us with the HOD of it and cse department and then invited Mr. Har Simran Singh Jaggi who introduced us to the illustrious history of this institution, emphasizing its<mark> 70</mark> years of shaping brilliant minds.
+
+
+
+
 

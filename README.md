@@ -46,9 +46,16 @@ After mam __Mr. AKSHAY DINGGRA AND Dr PARMINDER SINGH__ gave us the most importa
 
 
 Our Principal Sir<mark>Dr SEHAJPAL SINGH</mark> then motivated us to make the best use of this platform. The and  introduced us to the illustrious history of this institution, emphasizing its 70 years of shaping brilliant minds
-I learned an essential lesson: “Seize the opportunity; don’t wait for it to come to you.”
+I learned an essential lesson: “Seize the opportunity; don’t wait for it to come to you." 
 
-Next Our worthy chief guest __SHREE RAVINDER GARG SIR__( chief engineer ,municipal corporation ludhiana ) gave us the most valuable  lessons of life to work hard for success , work honestly and to always respect your parents and teacher .Sir's thoughts and golden words won uor hearts  
+
+![Picsart_25-08-07_18-44-51-565](https://github.com/user-attachments/assets/f91d5f74-a99e-4d36-9bc5-1cc93b652539)
+
+
+Next Our worthy chief guest __SHREE RAVINDER GARG SIR__( chief engineer ,municipal corporation ludhiana ) gave us the most valuable  lessons of life to work hard for success , work honestly and to always respect your parents and teacher .Sir's thoughts and golden words won uor hearts 
+
+![IMG-20250803-WA0004](https://github.com/user-attachments/assets/186231a1-f023-42d7-bb2d-6e803645f125)
+
 
 
 

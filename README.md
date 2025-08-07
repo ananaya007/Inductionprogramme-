@@ -57,6 +57,15 @@ Next Our worthy chief guest __SHREE RAVINDER GARG SIR__( chief engineer ,municip
 ![IMG-20250803-WA0004](https://github.com/user-attachments/assets/186231a1-f023-42d7-bb2d-6e803645f125)
 
 
+AFTER LEARNING MANY LIFE LONG LESSONS , I with my new friends went to G -12  room where we all were welcomed by __Dr SACHIN BAGGA ,ER. HIMANI SHARMA AND GITANJALI MAM__, Himani  mam and gitanjali mam  gave us the breif information about all the daeans and HOD SIR .  I didn't feel like it was our first meeting as they wew very friendly and helpful .THEN in our session HOD sir __Dr. KULVINDER SINGH MANN SIR__ also gave us some remarkabke tips to excel in our stream  and also told us the basic diiference in IT and CSE .
+
+
+
+Then Sachin sir gave us kownlwdge about placement process and about skills required durind placements and also showed us some interesting facts of diiferent companies 
+. It was a very interesting and interactive session 
+
+
+
 
 
 

@@ -45,10 +45,10 @@ __The atmosphere was calm, and the stage was beautifully decorated .Then our hos
 After mam __Mr. AKSHAY DINGGRA AND Dr PARMINDER SINGH__ gave us the most important life  lessons  to excel in future .They motivated us to enjoy and utilize our four precisely, they also motivated us to try to do our best for enhancing our skills by participating in various co-curricular activities 
 
 
-Our Principal Sir then motivated us to make the best use of this platform. The and  introduced us to the illustrious history of this institution, emphasizing its 70 years of shaping brilliant minds
+Our Principal Sir<mark>Dr SEHAJPAL SINGH</mark> then motivated us to make the best use of this platform. The and  introduced us to the illustrious history of this institution, emphasizing its 70 years of shaping brilliant minds
 I learned an essential lesson: “Seize the opportunity; don’t wait for it to come to you.”
 
-Next
+Next Our worthy chief guest __SHREE RAVINDER GARG SIR__( chief engineer ,municipal corporation ludhiana ) gave us the most valuable  lessons of life to work hard for success , work honestly and to always respect your parents and teacher .Sir's thoughts and golden words won uor hearts  
 
 
 

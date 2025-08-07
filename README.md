@@ -35,7 +35,15 @@ Starting from kirtan,from reciting  JAPJI SAHIB to CHUPAI SAHIB I got soo immers
 
 after this devotional tip I along with my friends and batchmates reache in auditorium ( a place full of positivity)
 
-__The atmosphere was calm, and the stage was beautifully decorated .Then our host introduced us with the HOD of it and cse department and then invited Mr. Har Simran Singh Jaggi who introduced us to the illustrious history of this institution, emphasizing its<mark> 70</mark> years of shaping brilliant minds.
+__The atmosphere was calm, and the stage was beautifully decorated .Then our host introduced us with the HOD of it and cse department and then invited Mr. Har Simran Singh Jaggi who introduced us to the illustrious history of this institution, emphasizing its<mark> 70</mark> years of shaping brilliant minds after that our hoast invited our next speaker __HARPREET MAM__ her lecture made us feel like we wew already a part ofthe GNDEC family .
+
+
+
+
+
+After mam __Mr. AKSHAY DINGGRA AND Dr PARMINDER SINGH__ gave us the most important life  lessons  to excel in future .They motivated us to enjoy and utilize our four precisely, they also motivated us to try to do our best for enhancing our skills by participating in various co-curricular activities 
+
+
 
 
 

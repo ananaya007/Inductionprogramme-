@@ -106,3 +106,35 @@ After this our host and also the member of causmic club __Tranpreet kaur__gave u
 After the introduction od causmic club __Harsimran Singh Sir__he introduced us to GitHub, a vital tool for version control and collaboration. With his guidance, we set up our first repository, marking an important step in our journey as budding developers. This hands-on introduction was both practical and exciting, providing us with a foundational skill that will be crucial throughout our academic and professional careers.
 
 
+# Day 3 
+__of induction programme was a diverse and enriching experience , package with valuable lessons and motivational insights_
+
+
+We all started our started our day by closing our eyes ,  reciting the mane of God and by remembering him 
+
+__Expert lecture by Dr . Jaswinder Singh ( incharge - IAPT)__
+Jaswinder sir is one of the most interesting and cheerful person , ai have ever seen . Sir's lecture was such a memorable lecture that i will never forget in my entire life.He , in his humourous style he just explained us many  difficult concepts practically like magic , he explained us very interesting things about God qnd his presence ad how we can met or see him .I felt like he was not an ordinary professor or human being ,he was magician who was showing us magic of science and mathematics.
+
+He also performed a very interesting activity with few students ,but at the end I missed the opportunity to perform with him but gained countless lessons anf life long memories.
+
+
+
+After sir's lecture __Dr .Priya Darshni Mam__ gave us a lecture on "UNIVERSAL HUMAN VALUES"
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+

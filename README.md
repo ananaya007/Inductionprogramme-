@@ -80,6 +80,10 @@ Today our day started with _test_
 <mark>ENGLISH PROFICIENCY TEST AND MATHS PROFICIENCY TEST</mark>
 these tests were taken just to brush up our old concepts and knowledge. It includes basic grammatic questions , comprehension,letter ,emial writing and basic mathematics questions .It was a unique experience ,these tests remind of my school days.
 
+![IMG_20250803_114804](https://github.com/user-attachments/assets/7cb34be0-c7b2-44fe-bb77-4f5805f36d63)
+
+
+
 
 __After A Small Refreshing Break__
 we all headed towards the auditorium where some new exciting sessions were waiting for us .

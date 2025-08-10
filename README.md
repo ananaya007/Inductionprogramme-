@@ -115,11 +115,20 @@ We all started our started our day by closing our eyes ,  reciting the mane of G
 __Expert lecture by Dr . Jaswinder Singh ( incharge - IAPT)__
 Jaswinder sir is one of the most interesting and cheerful person , ai have ever seen . Sir's lecture was such a memorable lecture that i will never forget in my entire life.He , in his humourous style he just explained us many  difficult concepts practically like magic , he explained us very interesting things about God qnd his presence ad how we can met or see him .I felt like he was not an ordinary professor or human being ,he was magician who was showing us magic of science and mathematics.
 
+![Picsart_25-08-10_12-46-36-586](https://github.com/user-attachments/assets/ed841edc-7058-4780-bb41-ccb1278ed741)
+
+
+
 He also performed a very interesting activity with few students ,but at the end I missed the opportunity to perform with him but gained countless lessons anf life long memories.
 
 
 
 After sir's lecture __Dr .Priya Darshni Mam__ gave us a lecture on "UNIVERSAL HUMAN VALUES"A Path to Happiness a subject that delves into the essence of what it means to live a fulfilling and content life. We explored the concept of happiness and the state of contentment, discussing how these states of mind influence our everyday actions and decisions. The session was enlightening, providing a fresh perspective on how we can achieve true happiness. We also shared real-life scenarios, which made the discussion more relatable and impactful.
+
+
+
+![IMG_20250810_124909](https://github.com/user-attachments/assets/75a13011-6415-41f5-984b-e08ebdfa8915)
+
 
 
 

@@ -72,9 +72,28 @@ Then Sachin sir gave us kownlwdge about placement process and about skills requi
 
 
 
+# DAY-2
+
+Today marked the second day of my college journey and it was packed with learning , interaction and knowledge 
+
+Today our day started with _test_ 
+<mark>ENGLISH PROFICIENCY TEST AND MATHS PROFICIENCY TEST</mark>
+these tests were taken just to brush up our old concepts and knowledge. It includes basic grammatic questions , comprehension,letter ,emial writing and basic mathematics questions .It was a unique experience ,these tests remind of my school days.
 
 
+__After A Small Refreshing Break__
+we all headed towards the auditorium where some new exciting sessions were waiting for us .
+
+First after settling down in auditorium __Harpreet Mam__asked us to close our eyes and feel positive energy and to recite the name of God.It was a very calm and refreshing  experience.
 
 
+After that our host was invited our chief guest __Dr. Arashdeep Singh sir__ who gave us le ture on "Food A Pivotal Role In Student's Overall Wellness "
+He explained us the importance of well balanced food intake in students life and how it will affect our energy level . We all too asked about many myths and sir gave us detailed answers of everi single myth . It was interactive session which help us to clear our misconceptions.
+
+__Session by causmic club and launch of induction Activities__
+
+This session was started in a very interesting way , first a member of causmic club and sang some lovely songs for us . This really liftes up our spirits and we all didn't feel like we were in college.
+After this our host and also the member of causmic club __Tranpreet kaur__gave us the breif description of causmic club , about its activities and achievements 
+After the introduction od causmic club __Harsimran Singh Sir__
 
 

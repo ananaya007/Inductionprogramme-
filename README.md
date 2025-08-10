@@ -119,7 +119,8 @@ He also performed a very interesting activity with few students ,but at the end 
 
 
 
-After sir's lecture __Dr .Priya Darshni Mam__ gave us a lecture on "UNIVERSAL HUMAN VALUES"
+After sir's lecture __Dr .Priya Darshni Mam__ gave us a lecture on "UNIVERSAL HUMAN VALUES"A Path to Happiness a subject that delves into the essence of what it means to live a fulfilling and content life. We explored the concept of happiness and the state of contentment, discussing how these states of mind influence our everyday actions and decisions. The session was enlightening, providing a fresh perspective on how we can achieve true happiness. We also shared real-life scenarios, which made the discussion more relatable and impactful.
+
 
 
 

@@ -165,6 +165,33 @@ After p2p class ,I attended Basic electronics and electrical engineering class a
 #DAY-7
 
 
+Started the day  by closing our eyes ,  reciting the mane of God and by remembering him
+
+Lecture by **Dr.Amit Kamra**( incharge DMC)
+Sir had a very interesting lecture on digital marketing and how its useful as a skill in our placement journey , sir also motivated us to enroll in DMC for our better skill development .
+
+
+
+After this interesting session , **Dr. Parminder singh** ( dean student welfare) gave us a detailed lecture about our college various facilities and clubs in order to enhance our skills .Sir also guided us about various scholarships scheme and how to apply for the same 
+
+
+
+After Parminder sir , **Randhir Singh sir** gave us important information about the conductance and procedure of examination , sir also guided us how we all can score well in exams 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 

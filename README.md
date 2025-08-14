@@ -187,6 +187,10 @@ The **GNDEC induction program** was a comprehensive blend of technical education
 
 
 
+https://github.com/user-attachments/assets/ada6206a-463e-4d7f-a7c6-e15678710775
+
+
+
 
 
 

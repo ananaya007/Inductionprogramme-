@@ -134,7 +134,7 @@ After sir's lecture __Dr .Priya Darshni Mam__ gave us a lecture on "UNIVERSAL HU
 
 
 
-#DAY-4 
+# DAY-4 
 started our day with more excitement anf joy 
 First attended English ( by **Mr.Aastik Sharma* )And chemistry (**Mr.Karan Bhalla* )introductory classes .
 Then after a short break , I with my friends entered auditorium and had our second lecture by **PRIYA MAM* on <mark>universal human value</mark> in which she helped us to relate our problems with daily life solutions .It was a very interactive session 
@@ -142,7 +142,7 @@ Then after a short break , I with my friends entered auditorium and had our seco
 ![IMG_20250803_121532](https://github.com/user-attachments/assets/a934bb72-9c23-4618-b8a6-b4208e6791b3)
 
 
-#DAY-5
+# DAY-5
 
 started our day with a new learning class that was **p2p class** one of my  most favourite class , in this class our college seniors explained the basic principles of <mark>C++</mark>
 and guided us about its usage.
@@ -151,7 +151,7 @@ After p2p class ,I attended Basic electronics and electrical engineering class a
 ![IMG_20250814_181610](https://github.com/user-attachments/assets/93afbcde-e21d-4ba4-b577-e22b41d81558)
 
 
-#DAY6
+# DAY6
 .1 Maths lecture by **Professor SUKHWINDER SINGH**
 
 .2 Basic electronics and electrical engineering class by **Professor SIMRANJEET KAUR**
@@ -162,7 +162,7 @@ After p2p class ,I attended Basic electronics and electrical engineering class a
 
 .5 Lecture by **Dr . LAKHVIR SINGH** (incharge  CML)
 
-#DAY-7
+# DAY-7
 
 
 Started the day  by closing our eyes ,  reciting the mane of God and by remembering him

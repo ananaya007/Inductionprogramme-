@@ -141,7 +141,7 @@ Then after a short break , I with my friends entered auditorium and had our seco
 
 #DAY-5
 
-started our day with a new learning class that was **p2p class** one of my  most favourite class , in this class our college seniors explained the basic principles of <mark>C++<\mark>
+started our day with a new learning class that was **p2p class** one of my  most favourite class , in this class our college seniors explained the basic principles of <mark>C++</mark>
 and guided us about its usage.
 After p2p class ,I attended Basic electronics and electrical engineering class and Maths class ,These classes were held to review our prior concepts
 

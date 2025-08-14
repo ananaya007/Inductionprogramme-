@@ -131,6 +131,46 @@ After sir's lecture __Dr .Priya Darshni Mam__ gave us a lecture on "UNIVERSAL HU
 
 
 
+#DAY-4 
+started our day with more excitement anf joy 
+First attended English ( by **Mr.Aastik Sharma* )And chemistry (**Mr.Karan Bhalla* )introductory classes .
+Then after a short break , I with my friends entered auditorium and had our second lecture by **PRIYA MAM* on <mark>universal human value</mark> in which she helped us to relate our problems with daily life solutions .It was a very interactive session 
+
+![IMG_20250803_121532](https://github.com/user-attachments/assets/a934bb72-9c23-4618-b8a6-b4208e6791b3)
+
+
+#DAY-5
+
+started our day with a new learning class that was **p2p class** one of my  most favourite class , in this class our college seniors explained the basic principles of <mark>C++<\mark>
+and guided us about its usage.
+After p2p class ,I attended Basic electronics and electrical engineering class and Maths class ,These classes were held to review our prior concepts
+
+#DAY6
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 

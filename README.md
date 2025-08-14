@@ -148,8 +148,21 @@ started our day with a new learning class that was **p2p class** one of my  most
 and guided us about its usage.
 After p2p class ,I attended Basic electronics and electrical engineering class and Maths class ,These classes were held to review our prior concepts
 
-#DAY6
+![IMG_20250814_181610](https://github.com/user-attachments/assets/93afbcde-e21d-4ba4-b577-e22b41d81558)
 
+
+#DAY6
+.1 Maths lecture by **Professor SUKHWINDER SINGH**
+
+.2 Basic electronics and electrical engineering class by **Professor SIMRANJEET KAUR**
+
+.3 Lecture by **ARVIND DINGRA**(director -step and incharge -TAC)
+
+.4 Expert lecture by **Mr.JASViR SINGH**( district recourse person - STEM) 
+
+.5 Lecture by **Dr . LAKHVIR SINGH** (incharge  CML)
+
+#DAY-7
 
 
 

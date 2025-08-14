@@ -175,6 +175,7 @@ Sir had a very interesting lecture on digital marketing and how its useful as a 
 After this interesting session , **Dr. Parminder singh** ( dean student welfare) gave us a detailed lecture about our college various facilities and clubs in order to enhance our skills .Sir also guided us about various scholarships scheme and how to apply for the same 
 
 
+![Picsart_25-08-14_19-02-22-559](https://github.com/user-attachments/assets/07258ad0-c0b5-4858-81a5-bbaaf5580a45)
 
 After Parminder sir , **Randhir Singh sir** gave us important information about the conductance and procedure of examination , sir also guided us how we all can score well in exams 
 
